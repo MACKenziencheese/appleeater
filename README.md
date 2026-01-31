@@ -14,7 +14,7 @@
 
  
 
-  ***ADD ;; i have ADHD,tic,anxiety and depression (not diagnosed)***
+  ***ADD ;; i have ADHD,nervous tics,anxiety and depression (not diagnosed)***
 
 
   
