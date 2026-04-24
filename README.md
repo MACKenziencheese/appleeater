@@ -3,4 +3,4 @@
 **° ′’ ˙ . 𓏵× — heya there !  ’′ °**
 
              
- ^ in order! - C♥,W,LA,L,G,CH,S,K,Y,Y,R.
+ ^ in order! - C♥,M,CH,L,LA,Y,R.
