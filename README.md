@@ -3,4 +3,4 @@
 **° ′’ ˙ . 𓏵× — heya there !  ’′ °**
 
              
- ^ in order! - C♥,M,CH,L,LA,Y,R.
+ ^ in order! - fruits,the world,me
